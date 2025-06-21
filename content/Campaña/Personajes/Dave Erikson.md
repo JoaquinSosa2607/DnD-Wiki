@@ -12,9 +12,6 @@ Aunque alguna vez soñó con dejar atrás la vida de cazador y formar una famili
 
 A pesar de su desapego emocional, había algo que jamás traicionaría: su honor. En un mundo donde la traición y la codicia eran moneda común, Dave Erikson no soportaba a los ricos y corruptos que jugaban con la vida de los demás. Para él, el honor valía más que cualquier tesoro, más que el oro o el poder.
 
-  
-  
-
 ---
 
 ### Vida posterior de Dave
@@ -102,12 +99,6 @@ Dave tomó el pequeño instrumento, torpe al principio. Sus manos, acostumbradas
 Y fue así como, noche tras noche, Patricio le enseñó a Dave los fundamentos de la armónica. Aunque nunca sería tan habilidoso como el bardo, Dave encontró en la música una forma de calma que nunca había experimentado. Era algo que podía llevar consigo en sus viajes, un recordatorio de que no todo era guerra y muerte.
 
 Con el tiempo, Dave siguió su camino, y Patricio el suyo. Pero esa conexión quedó, la música se convirtió en un vínculo entre ellos. A veces, cuando el ruido del combate se hacía demasiado, o cuando la soledad de las montañas lo abrumaba, Dave sacaba su armónica y tocaba, recordando aquellos días en Rivenlans y la amistad que había nacido de la música.
-
-  
-  
-  
-  
-  
 
 #### La llegada a la Taberna de Puerto Verde
 

@@ -1,0 +1,17 @@
+Isfin nació en un pequeño asentamiento gnomo en los Valles de Turiel, una región tranquila salpicada de colinas verdes y cuevas llenas de minerales. Desde muy joven mostró una fascinación desbordante por el funcionamiento de las cosas. Mientras otros niños jugaban con cometas o perseguían luciérnagas, Isfin desmontaba relojes, fabricaba catapultas miniatura o construía artefactos absurdos pero encantadores, como una tetera que bailaba mientras silbaba.
+
+Vivía con sus hermanos, quienes compartían su pasión por la invención. Su hogar, un taller improvisado excavado en una colina, era un caos de herramientas, chispas y risas. El futuro parecía prometedor.
+
+Todo cambió el día que **[[Gorim]]**, un herrero de Cloudfell con más ambición que escrúpulos, llegó a Turiel buscando “manos diestras” para trabajar en sus forjas. Bajo promesas falsas de paga y protección, se llevó a los tres hermanos a la ciudad. Allí, en lugar de recibir respeto o compensación, fueron encadenados a una vida de trabajo forzado, obligados a construir armas, reparar maquinaria pesada y diseñar artefactos de guerra para los clientes de Gorim. Los días eran largos, el aire denso con humo metálico, y los errores se pagaban con gritos o peores consecuencias.
+
+Durante ese tiempo, Isfin aprendió más sobre ingeniería y alquimia de lo que jamás habría imaginado… pero a un precio muy alto. Su creatividad fue oprimida por la necesidad de producir rápido y con precisión, sin margen para soñar. Sin embargo, su espíritu nunca se rompió. En secreto, seguía ideando pequeños inventos por las noches: mecanismos de escape, compartimientos ocultos, e incluso un autómata diminuto hecho con partes sobrantes que escondía bajo su cama.
+
+El día en que **un grupo de aventureros** irrumpió en el taller y lo rescataron bajo las narices de Gorim, para Isfin, el inicio de una nueva vida. Aunque temeroso al principio, pronto descubrió que los aventureros no eran simples soldados ni mercenarios: eran personas con historias, convicciones, y un propósito más grande que el oro. Especialmente conectó con **[[Patricio Jaime | Patricio]]**, cuya creatividad le recordaba la suya, y con **[[Aldo]]**, quien comprendía el valor de la libertad tras una vida de restricciones.
+
+Unirse al grupo fue como abrir la válvula de presión de su alma: de repente, podía crear por el puro placer de hacerlo. Su taller portátil —una mochila expandible llena de piezas, pociones, herramientas y humo— se convirtió en su mundo. Isfin comenzó a construir cosas útiles para el grupo: trampas, granadas de distracción, pequeñas mejoras para armas, y en el fondo de su mochila... **algo más grande, aún en desarrollo**.
+
+### ✨ **El futuro de Isfin**
+
+Isfin tiene un sueño: crear una maravilla sin precedentes, un artefacto que cambie el curso de la historia, no con destrucción, sino con asombro. Desea construir una ciudad flotante, una biblioteca viva o una armadura inteligente que proteja a los inocentes. Pero más allá de eso, quiere demostrar que la mente gnómica no solo sirve para construir armas de guerra o enriquecer a los poderosos.
+
+Aunque a veces sigue mirando por encima del hombro, temiendo que Gorim o alguien como él vuelva a atraparlo, Isfin está decidido a dejar huella en Eldoria. Y ahora que tiene aliados, libertad y un corazón lleno de chispas, su historia recién comienza.
