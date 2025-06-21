@@ -22,5 +22,5 @@ title: Mapa Interactivo
     map.on("click", function (e) {
       console.log("Coordenadas:", e.latlng);
     });
-});
+
 </script>
