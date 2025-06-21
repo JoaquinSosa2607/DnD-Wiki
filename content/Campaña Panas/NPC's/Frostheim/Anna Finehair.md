@@ -1,0 +1,14 @@
+### La Curandera de los Bosques
+Anna Finehair nació en una pequeña aldea sajona, situada en los vastos bosques al sur de Eldoria. Desde pequeña, Anna fue especial. No solo destacaba por su estatura imponente, heredada de una antigua línea de mujeres gigantescas, sino también por su habilidad innata para conectarse con la naturaleza. Los aldeanos decían que podía escuchar los susurros del viento y entender el lenguaje de las bestias. Bajo la tutela de su abuela, una curandera legendaria, Anna aprendió a usar las plantas y los elementos de la tierra para sanar tanto cuerpos como espíritus.
+
+A pesar de su talento, Anna nunca se sintió completamente cómoda en su aldea. Sabía que había más en el mundo que lo que la vida rural le ofrecía. Entonces, un día, decidió partir en busca de nuevas experiencias. Durante años, viajó por los reinos de Eldoria, perfeccionando sus habilidades como curandera y estableciendo una conexión aún más profunda con la naturaleza. Fue durante esos viajes cuando Anna descubrió su habilidad más extraordinaria: podía comunicarse con los animales.
+
+Los animales eran su refugio, sus compañeros y sus aliados. Los lobos, en particular, parecían sentir una conexión especial con ella, protegiéndola y guiándola a través de territorios peligrosos. En sus travesías, Anna ayudaba a aldeas y pueblos, curando a los enfermos y enseñando a otros las formas antiguas de la medicina natural.
+
+Un día, mientras viajaba hacia el norte, Anna llegó a Frostheim. Fue en esas tierras nevadas donde encontró al gigante retirado, [[Harald Erikson]]. Aunque al principio parecía que sus mundos chocaban –él, un guerrero endurecido por la batalla, y ella, una curandera en armonía con la naturaleza–, algo en ellos resonó. Anna vio en Harald una fuerza que necesitaba guía, y Harald encontró en Anna una paz que había estado buscando toda su vida.
+
+Se establecieron juntos en la vasta soledad de Frostheim, y aunque sus vidas siguieron siendo diferentes –Harald continuó trabajando en la forja y recordando los días de batalla, mientras Anna cultivaba plantas y cuidaba de los animales–, se complementaban a la perfección. Anna siempre trató de apartar a Dave, su hijo, de la senda de la violencia, pero entendía que la sangre de su padre era poderosa en él. En cambio, se dedicó a enseñarle el respeto por la naturaleza y la importancia de la vida.
+
+### Unidos por un Destino Común
+
+Aunque Harald y Anna venían de mundos opuestos, su unión creó un hogar en el que dos fuerzas –la violencia y la paz– convivían en equilibrio. El carácter de Dave es un reflejo de ese contraste: la furia y el poder de su padre, mezclados con la sabiduría y la compasión de su madre. Ambos padres, a su manera, formaron en Dave un espíritu único, preparado para enfrentar el mundo pero con la esperanza, tal vez, de que un día encontraría el equilibrio que ellos buscaron en su propio hogar.

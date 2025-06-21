@@ -1,0 +1,13 @@
+### El gigante de Acero
+
+Harald Erikson nació en las montañas heladas del norte, en el corazón de una de las tribus de gigantes más temidas de Eldoria. Desde joven, su tamaño imponente lo distinguió del resto, pero no era solo su fuerza física lo que lo hacía especial. Harald tenía un intelecto afilado y una capacidad estratégica innata que lo llevaron a destacar en el campo de batalla. A temprana edad, fue reclutado por el legendario ejército nórdico, donde rápidamente ascendió en las filas, convirtiéndose en comandante.
+
+Como líder, Harald era implacable y calculador, capaz de dirigir a sus tropas en batallas desesperadas y salir victorioso. Su amistad con los enanos guerreros, forjada en las arenas de la guerra, le permitió aprender los secretos de las armas y las armaduras más resistentes. Los enanos, maestros de la forja, lo instruyeron en la creación de metales especiales, y con el tiempo, Harald se convirtió no solo en un guerrero temido, sino también en un experto en la creación de armas. Las espadas que él forjaba eran codiciadas por todos los clanes del norte.
+
+Durante su tiempo como comandante, Harald libró decenas de guerras, desde las fronteras más frías hasta los desiertos del sur. Sin embargo, con el tiempo, se fue dando cuenta de que la violencia perpetua tenía un alto costo, y aunque nunca lo admitió abiertamente, empezó a sentir un vacío. Después de una gran campaña militar en la que perdió a muchos de sus hombres más cercanos, Harald decidió retirarse. El gran gigante quería algo más que sangre y victoria; deseaba paz.
+
+Se asentó en Frostheim, donde construyó su hogar con sus propias manos, pero su destino dio un giro inesperado cuando conoció a Anna Finehair. Aunque venían de mundos diferentes, había algo en la naturaleza pacífica y curativa de Anna que atrajo a Harald. Encontró en ella un equilibrio que nunca había tenido en su vida como guerrero.
+
+### Unidos por un Destino Común
+
+Aunque Harald y Anna venían de mundos opuestos, su unión creó un hogar en el que dos fuerzas –la violencia y la paz– convivían en equilibrio. El carácter de Dave es un reflejo de ese contraste: la furia y el poder de su padre, mezclados con la sabiduría y la compasión de su madre. Ambos padres, a su manera, formaron en Dave un espíritu único, preparado para enfrentar el mundo pero con la esperanza, tal vez, de que un día encontraría el equilibrio que ellos buscaron en su propio hogar.
