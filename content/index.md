@@ -1,5 +1,5 @@
 ---
-title: Welcome to Quartz
+title: Bienvenido a la Wiki de mi Campaña
 ---
 
 This is a blank Quartz installation.
