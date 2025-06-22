@@ -12,7 +12,7 @@ Antes de emprender viaje al destino principal, Erik fue puesto bajo custodia de 
 
 En el volcán, **derrotaron a los guardianes elementales sin sufrir bajas**, reclamando finalmente las Armas de los 5 Divinos: artefactos sagrados con un poder único, necesarios para enfrentarse a Altair y sus fuerzas. Este fue un momento clave que marcó el comienzo del enfrentamiento final.
 
-Ya armados y decididos, los aventureros eligieron no seguir las amenazas de un grupo de delincuentes llamado **el Triángulo de Obsidiana**, y en su lugar, decidieron ir a **[[Rivendale]]**, ciudad natal de **[[Luke Skywalker]]**, para buscar la ayuda de la **Liga de Asesinos**, a la que él pertenece. 
+Ya armados y decididos, los aventureros eligieron no seguir las amenazas de un grupo de delincuentes llamado **el Triángulo de Obsidiana**, y en su lugar, decidieron ir a **[[Rivenlans]]**, ciudad natal de **[[Luke Skywalker]]**, para buscar la ayuda de la **Liga de Asesinos**, a la que él pertenece. 
 
 Una vez allí consiguieron tener una reunión con el Jefe de la Liga, **Ezio**. Él accedió a ayudarlos solo si pasaban tres pruebas:
 
@@ -22,6 +22,6 @@ Una vez allí consiguieron tener una reunión con el Jefe de la Liga, **Ezio**. 
     
 - **Una prueba de destreza**, que puso a prueba su agilidad, sigilo y precisión en un circuito subterráneo en las alcantarillas de la ciudad. 
 
-Habiendo superado con creces las pruebas de la Liga pudieron obtener aliados muy poderosos para ayudarlos con la batalla que tienen en frente. Actualmente, quedaron en reunirse con [[Harald Erikson]], Eirik, Bjorn e Isfin en el bosque a las afueras de [[Rivendale]] para organizar el viaje hacia las Montañas Zafiro para encontrar la base de Altair, ahora con ayuda de la mayoría de la Liga de Asesinos de su lado.
+Habiendo superado con creces las pruebas de la Liga pudieron obtener aliados muy poderosos para ayudarlos con la batalla que tienen en frente. Actualmente, quedaron en reunirse con [[Harald Erikson]], Eirik, Bjorn e Isfin en el bosque a las afueras de [[Rivenlans]] para organizar el viaje hacia las Montañas Zafiro para encontrar la base de Altair, ahora con ayuda de la mayoría de la Liga de Asesinos de su lado.
 
 Con cada paso, los aventureros se acercan más al enfrentamiento final con Altair. Pero aún hay secretos que no han salido a la luz, misterios ocultos y una guerra entre voluntades divinas por decidir el destino del mundo.
