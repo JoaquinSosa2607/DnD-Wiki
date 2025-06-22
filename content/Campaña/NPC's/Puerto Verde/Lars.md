@@ -1,0 +1,1 @@
+Un ladrón de poca monta que sobrevive estafando a viajeros distraídos. Tiene fama de saber todo lo que pasa en [[Puerto Verde]], y suele estar dispuesto a hablar... por el precio adecuado. A veces actúa como guía o informante no oficial.

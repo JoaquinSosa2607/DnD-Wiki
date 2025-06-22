@@ -1,0 +1,1 @@
+Hermano menor de [[Bárbara Tyrrel|Bárbara]]. Aún guarda rencor por la muerte de su padre. Está siendo manipulado por sectores radicales de la nobleza para usar su apellido como bandera.

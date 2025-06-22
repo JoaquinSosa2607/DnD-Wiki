@@ -1,0 +1,1 @@
+Encargado de _Cristales Nuñez_, con conocimientos básicos en cristalmancia. Nunca sonríe, y su trato borde ha generado más de un altercado verbal con clientes. Se rumorea que antes de llegar al pueblo era alquimista en una ciudad importante, pero fue exiliado por razones que no cuenta.

@@ -1,0 +1,1 @@
+Gruñón, huraño y posiblemente tramposo, Carlos vende baratijas mágicas y objetos exóticos. Es muy protector con su mercancía, y odia cuando alguien le toca las cosas sin permiso. No se sabe mucho de su pasado, pero su tienda ha sobrevivido a incendios, robos y hasta un ataque goblin.

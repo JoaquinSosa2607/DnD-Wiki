@@ -1,0 +1,1 @@
+Líder de la organización criminal más grande de [[Cloudfell]]. Tiene presencia absoluta en el Distrito Bajo. Ambicioso, brutal y sin tolerancia a la disidencia. Su objetivo es unificar todos los grupos criminales de Eldoria bajo su mando.

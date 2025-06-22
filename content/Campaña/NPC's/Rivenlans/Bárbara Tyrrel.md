@@ -1,0 +1,1 @@
+Joven noble y antigua pareja de [[Luke Skywalker|Luke]]. Aunque sobrevivió a la masacre de su familia, ahora vive en el anonimato. Estudia magia y política, con intenciones de reconstruir la ciudad desde las sombras.

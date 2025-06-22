@@ -1,0 +1,1 @@
+Gigante y malhumorado, maneja el establo del pueblo. Tiene buen ojo para los animales y reconoce a los mentirosos al instante. Siempre está mascando una ramita y hablando en voz baja. A pesar de su edad, aún puede cargar un saco de grano como si tuviera treinta años menos.

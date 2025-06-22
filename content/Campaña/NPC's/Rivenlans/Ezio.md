@@ -1,0 +1,1 @@
+Líder absoluto de la _Liga de Asesinos_. Inteligente, calculador y disciplinado. Entrena personalmente a los reclutas más prometedores. Aunque parece frío, tiene un fuerte sentido del equilibrio: para él, la muerte debe tener propósito. Fue el mentor de Connor, el asesino que adoptó a [[Luke Skywalker|Luke]].

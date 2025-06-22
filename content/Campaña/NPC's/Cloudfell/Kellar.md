@@ -1,0 +1,1 @@
+Consejero del Rey. Frío, calculador y con una visión elitista. Cree que la sangre noble debe gobernar sin interferencias de la plebe. Su paciencia es escasa, y su lengua, afilada como una daga.

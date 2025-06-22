@@ -1,0 +1,1 @@
+Dueña de _La Sirena Dorada_. Tiene una personalidad fuerte, no tolera borrachos problemáticos ni idiotas con espadas. Sin embargo, si uno se gana su confianza, puede convertirse en una fuente valiosa de chismes, rumores y contactos discretos.

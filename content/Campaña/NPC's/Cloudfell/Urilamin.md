@@ -1,0 +1,1 @@
+Representante principal del gobierno y autoridad máxima en la ciudad. Aunque austero y disciplinado, cree firmemente en el orden por medios militares. Valora el deber por encima de la compasión.

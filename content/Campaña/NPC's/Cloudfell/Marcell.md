@@ -1,0 +1,1 @@
+Jefe de los guardias. De carácter firme y cuerpo imponente, ascendió por méritos físicos y tácticos. No teme ensuciarse las manos, pero su sentido de la justicia es incorruptible. Detesta la burocracia y prefiere la acción directa.

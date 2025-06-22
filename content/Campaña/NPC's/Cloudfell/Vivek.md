@@ -1,0 +1,1 @@
+Monje del templo de Gilean. Sabio, paciente y de voz tranquila. Actúa como consejero espiritual y académico, y conoce historias de antiguos demonios, entre ellas la última aparición de Yeenoghu. Respeta a quienes buscan la verdad, pero desprecia a los que la fuerzan.

@@ -1,8 +1,6 @@
-#### Descripción General:
-
 Isla Brisamar es una ciudad tropical situada en una isla exuberante rodeada por las aguas cristalinas del Mar Esmeralda. Es un lugar de belleza natural impresionante, con playas de arena blanca, densas selvas llenas de vida exótica, y cascadas ocultas en las montañas interiores. La ciudad es conocida por su ambiente vibrante y su mezcla de culturas, donde el comercio, la música y la fiesta son parte fundamental de la vida diaria.
 
-#### Historia:
+#### Origen:
 
 Fundada hace varios siglos por comerciantes y exploradores que se establecieron en la isla atraídos por sus recursos naturales y su ubicación estratégica, Isla Brisamar ha crecido hasta convertirse en un importante puerto comercial. La ciudad ha sido un crisol de culturas, con influencias de varias razas, incluyendo humanos, elfos, enanos y semielfos, lo que ha resultado en una sociedad diversa y rica en tradiciones.
 
