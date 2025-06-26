@@ -8,7 +8,7 @@ Cloudfell fue fundada hace más de 400 años por los antepasados de la casa real
 
 Durante siglos, la ciudad prosperó gracias al comercio de minerales, artefactos mágicos y conocimientos. Las casas nobles se multiplicaron, los gremios crecieron y las calles se expandieron hacia el mar. Sin embargo, la corrupción también encontró raíces profundas en sus callejones oscuros. Hoy en día, Cloudfell es una ciudad de equilibrio inestable entre orden y caos, donde tanto la nobleza como los criminales libran una guerra silenciosa por el control.
 
-#### Puntos de interés:
+#### Puntos de interés
 
 - **Castillo**: 
 	Sede del gobierno y del concejo real, este castillo es un símbolo de poder y tradición. Altamente fortificado, está custodiado por la _Guardia Real_, un cuerpo de élite cuya única misión es proteger al Rey y los secretos del linaje. El acceso es extremadamente restringido.

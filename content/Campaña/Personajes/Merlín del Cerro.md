@@ -1,1 +1,11 @@
-To be continued...
+Nacido en el corazón de [[Malagor]], Merlín vino al mundo marcado con símbolos sagrados que resplandecían levemente en su piel bajo la luz de la luna. Los sacerdotes del Kyr’Varil interpretaron estas marcas como un signo de un destino trascendental, quizás incluso vinculado a antiguas profecías sobre el equilibrio mágico del mundo. Desde pequeño fue apartado y educado bajo estricta vigilancia, rodeado de maestros, arcanistas y visiones del deber que nunca pidió.
+
+Durante su formación, demostró un talento excepcional para la magia, superando a sus compañeros en poder e intuición. Pero con el tiempo, el peso del deber, la rigidez de la tradición y la falta de libertad lo ahogaron. Su espíritu rebelde no soportó la obediencia ciega ni las cadenas del sistema. El destino impuesto le resultaba más una condena que una bendición.
+
+Fue entonces cuando, en secreto, realizó un pacto con una entidad arcana desconocida, atraído por la promesa de poder y libertad. Aquel pacto le brindó conocimiento prohibido, un nuevo tipo de magia que fluía con intensidad… pero a cambio de su alma, ahora atada a una voluntad oscura. Al ser descubierto, huyó de Malagor antes de ser capturado, sabiendo que la traición al dogma lo convertiría en un paria de por vida.
+
+Desde allí comenzó una vida errante, ganándose la vida como embaucador, usando su magia en juegos de azar y estafas menores. Sin embargo, en su interior seguía ardiendo una llama de justicia: jamás engañaba a inocentes, solo a corruptos y aprovechadores.
+
+En su exilio, tuvo una relación fugaz con una humana, de la cual nació un hijo. Merlín nunca lo reconoció públicamente, sabiendo que cargar con su nombre sería una maldición más que un legado. Aun así, en secreto, vela por su bienestar, dividido entre el orgullo, la culpa y un amor silencioso.
+
+Hoy, Merlín camina una delgada línea entre el poder que lo consume, el resentimiento hacia su cuna y el anhelo de justicia que aún lo define. Malagor fue su origen… y quizás, algún día, también será el escenario de su redención o su venganza.

@@ -23,9 +23,10 @@ Dave Erikson, nacido entre los vientos helados de [[Frostheim]], es un coloso fo
 ---
 Luke, huérfano de las calles miserables de [[Rivenlans]], fue moldeado por la oscuridad mucho antes de blandir su primera daga. Tras escapar del orfanato y sobrevivir al submundo criminal, fue salvado y adoptado por Connor, un legendario asesino que lo entrenó durante 14 años en el arte del sigilo, el combate y la muerte. Juntos se convirtieron en figuras temidas en las sombras de la ciudad, hasta que una traición de la noble Casa Tyrrell acabó con la vida de su mentor. En un acto de venganza brutal, Luke aniquiló a toda la familia, excepto a dos: su amor, Bárbara Tyrrell, y su hermano menor Joshua. Forzado al exilio, Luke vagó por Eldoria con el peso de la sangre en sus manos y los fantasmas del pasado en su espalda. Años después, encontró una inesperada alianza con [[Aldo]], y desde entonces, camina entre el filo de la redención y la oscuridad, guiado por su propio código y perseguido por lo que dejó atrás.
 
+---
 ### [[Merlín del Cerro]]
 ---
-Historia en progreso :(
+Merlín, el brujo exiliado de Malagor, es un elfo marcado por un destino que nunca eligió. Criado entre arcanistas y profecías en la ciudad del conocimiento absoluto, su rebeldía lo llevó a romper el dogma al sellar un pacto prohibido. Ahora, con un poder oscuro fluyendo por sus venas y una vida de errante a sus espaldas, Merlín transita el mundo como un paria: un estafador carismático, un justiciero ambiguo y un padre en las sombras. Bajo su mirada aguda y su ironía constante, arde la promesa de una redención… o de una venganza largamente esperada.
 
 ---
 ### [[Patricio Jaime]]
@@ -33,6 +34,6 @@ Historia en progreso :(
 Patricio Jaime, bardo semi-elfo de porte refinado y sonrisa peligrosa, es un artista de la palabra y el engaño, un maestro del disfraz cuya vida gira entre melodías hipnóticas y juegos de identidades. Nacido de una unión prohibida entre una noble elfa y un humano astuto, su historia comenzó en tragedia, cuando ambos fueron asesinados por intrigas políticas. Desde entonces, Patricio oculta su verdadero nombre tras una fachada de elegancia, carisma y magia, mientras viaja por Eldoria urdiendo su venganza contra los responsables. Armado con su guitarra mágica 'Fonseca', roba a los poderosos, estafa a los corruptos y hechiza a quien lo escuche, guiado por un código moral torcido pero firme. No es un héroe, pero tampoco un villano: es un alma libre, un actor en su propia obra, y cada canción es un paso más hacia la justicia que se prometió de niño.
 
 ---
-### [[Isfin 🔧 |Isfin]]
+### [[Isfin|Isfin]]
 ---
 Pequeño en tamaño pero enorme en ingenio, Isfin es un gnomo artificiero cuya mente bulle de ideas, mecanismos y sueños aún por construir. Criado entre engranajes y chatarra junto a sus hermanos, fue capturado por el herrero **Gorim** y forzado a trabajar en condiciones crueles en la ciudad de [[Cloudfell]]. A pesar del encierro, su espíritu creativo nunca se apagó, y cuando un grupo de aventureros lo rescató, encontró no solo su libertad, sino una nueva familia. Ahora, con una segunda oportunidad por delante, Isfin busca dejar atrás su pasado como esclavo de la forja y convertirse en el inventor más grande de Eldoria.
